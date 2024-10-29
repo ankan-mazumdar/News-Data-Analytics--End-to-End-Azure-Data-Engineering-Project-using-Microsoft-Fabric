@@ -36,4 +36,11 @@ Agenda
 
 
 
+![image](https://github.com/user-attachments/assets/5980e9d7-0608-41c2-bc44-ee35221a77d2)
+
+
+![image](https://github.com/user-attachments/assets/3705be7f-b676-415a-a3ea-28d710bf17cf)
+
+
+
 
